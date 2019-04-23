@@ -1,2 +1,2 @@
 #CV
- https://qurratulain456.github.io/index/
+ https://qurratulain456.github.io/CV/
